@@ -16,9 +16,9 @@
 
 ![2](https://github.com/onlyrepayment/ModernWarfare-3-Menu/assets/151721948/a7a55c1d-3ef8-479b-b933-c94a75f9dca7)
 
-![3](https://github.com/onlyrepayment/ModernWarfare-3-Menu/assets/151721948/0edc3387-a1e9-4067-a352-217a2dc1eae8)
-
 # ⚙️𝐅𝐮𝐧𝐜𝐭𝐢𝐨𝐧𝐬
+
+![3](https://github.com/onlyrepayment/ModernWarfare-3-Menu/assets/151721948/0edc3387-a1e9-4067-a352-217a2dc1eae8)
 
 ***🌟ＨＷＩＤ Ｃｈａｎｇｅｒ ＩＮＣＬＵＤＥＤ!***
 
